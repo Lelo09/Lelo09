@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Leon 
+- 👀 I’m interested in Basketball
+- 🌱 I’m currently learning english and france
+- 💞️ I’m looking to collaborate on a School
+- 📫 You can reach me on Whatsapp
